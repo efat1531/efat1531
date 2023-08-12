@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **efat1531@gmail.com**
 
-- 📄 Know about my experiences [My Resume Click Here](https://drive.google.com/file/d/1nSYTcRQuqRKmmslOfTfLc8cGnvhgVbr0/view?usp=sharing)
+- 📄 Know about my experiences [My Resume Click Here](https://drive.google.com/file/d/1kGbgk57-zCz7V7Em2OfZP8aPxUs4cVfo/view)
 
 - ⚡ Fun fact **I am too lazy to work on saturday.**
 
