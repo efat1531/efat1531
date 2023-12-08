@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **efat1531@gmail.com**
 
-- 📄 Know about my experiences [My Resume Click Here](https://drive.google.com/file/d/1kGbgk57-zCz7V7Em2OfZP8aPxUs4cVfo/view)
+- 📄 Know about my experiences [My Portfolio Click Here](https://portfolio-efat-sikder.netlify.app/)
 
 - ⚡ Fun fact **I am too lazy to work on saturday.**
 
